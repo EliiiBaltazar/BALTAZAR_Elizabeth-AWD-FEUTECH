@@ -1,4 +1,4 @@
-[![MasterHead]([https://1.bp.blogspot.com/-7A4WynwLsM...](https://drive.google.com/file/d/1swFlPR-fdL-pGdKbA8i7UqkMS_BfkQCF/view?usp=sharing)](https://rishavchanda.io)
+[![MasterHead](https://drive.google.com/uc?id=1swFlPR-fdL-pGdKbA8i7UqkMS_BfkQCF)](https://rishavchanda.io)
 
 
 <h1 align="center">Hello 👋, I'm Ma. Elizabeth D. Baltazar</h1>
