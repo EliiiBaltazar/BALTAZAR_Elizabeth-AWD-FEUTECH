@@ -1,4 +1,5 @@
-[![MasterHead](https://drive.google.com/uc?export=view&id=1XLXkA6vVK67VyWaCZSb4AsV11njdJOCg)](https://rishavchanda.io)
+[![MasterHead](https://1.bp.blogspot.com/-7A4WynwLsM...)](https://rishavchanda.io)
+
 
 <h1 align="center">Hello 👋, I'm Ma. Elizabeth D. Baltazar</h1>
 <h3 align="center">I'm a IT student at FEU Tech, passionate about web and mobile design. I love blending creativity and technology to create visually appealing and user-friendly interfaces.</h3>
